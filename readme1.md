@@ -1,2 +1,0 @@
-wanakam da
- mapla 
