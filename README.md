@@ -1,1 +1,1 @@
-alskdjfpqoweitu
+bismillah allah akbar
